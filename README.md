@@ -1,1 +1,1 @@
-# girl_power_site
+# Girl Power Electrical
